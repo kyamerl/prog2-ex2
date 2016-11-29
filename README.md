@@ -9,4 +9,4 @@
 # BBBBBBBBBBBB
 # CCCCCCcccccD
 # アップロード
-# ポリリズム
+# 繰り返す この ポリリズム
