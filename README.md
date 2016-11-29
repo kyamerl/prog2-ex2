@@ -14,4 +14,6 @@
 # kkkk
 # kakak
 # GIMME A FACKIN' PIZZA!!!!
+# 繰り返す この ポリリズム
+# 英語できるようになりたい
 # CLICKBAIT
